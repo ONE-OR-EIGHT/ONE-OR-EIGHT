@@ -1,3 +1,26 @@
-[ℂ𝕒𝕣𝕣𝕕](https://chishieyes.carrd.co/) ✦ [𝕒𝕥𝕒𝕓𝕠𝕠𝕜](https://leah365.atabook.org) ✦ [𝕡𝕣𝕠𝕟𝕠𝕦𝕟𝕤 𝕡𝕒𝕘𝕖](https://en.pronouns.page/@LEEWEEEAHHHHHHHH)
+# LEAH
 
-![97cfa07301472073fafb175b683e2fea](https://github.com/user-attachments/assets/0dfa94a9-f57f-453a-9126-b560c556e2b0)
+15 (June 10th) - SHE/HER - STRAIGHT ALLY - ENGLISH + KOREAN - NATIVE AMERICAN - 1DERZ , ATINY , STAY , SHOTTIE
+
+**FAVS**
+**Bloodhounds**: Woojin , Geonwoo , Do-young , Alan
+
+**Planet of the Apes**: Muarice , Luca , Rocket , Koba
+
+**ALICE IN BORDERLAND**: Chishiya , Arisu , Usagi , Kyuma
+
+**Kung Fu Panda**: Tai Lung , Po , Tigress
+
+**Weak Hero Class**: Su-ho , Seok-dae
+
+**Vincenzo**: Han-seo , Han-seok , Vincenzo , Cha-young
+
+**Basics**: South korea , Dumplings , pirates , vampires , turtles , felines , ferrets
+
+**Groups**: ONE OR EIGHT , StrayKids , Ateez , Lngshot
+
+**YouTubers/Streamers**: AstralDior , Collins Key , Caseoh
+
+----------------------------
+
+<img width="736" height="736" alt="182b52213c3fe61830cc7a19ef8bc76c" src="https://github.com/user-attachments/assets/57f08403-83b9-49b3-9fd9-892f70d74294" />
