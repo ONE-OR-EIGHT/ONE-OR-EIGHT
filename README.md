@@ -1,26 +1,7 @@
-# LEAH
+✩░▒▓▆▅▃▂▁𝐋𝐄𝐀𝐇 / {𝐍𝐈𝐂𝐊𝐍𝐀𝐌𝐄𝐒}▁▂▃▅▆▓▒░✩
 
-15 (June 10th) - SHE/HER - STRAIGHT ALLY - ENGLISH + KOREAN - NATIVE AMERICAN - 1DERZ , ATINY , STAY , SHOTTIE
+<img width="736" height="736" alt="Hoo woo jin" src="https://github.com/user-attachments/assets/65d48948-6ad3-4e90-a256-9eeca19d003e" />
 
-**FAVS**
-**Bloodhounds**: Woojin , Geonwoo , Do-young , Alan
+15 ( JUNE 10TH ) - SHE/HER - STRAIGHT
 
-**Planet of the Apes**: Muarice , Luca , Rocket , Koba
-
-**ALICE IN BORDERLAND**: Chishiya , Arisu , Usagi , Kyuma
-
-**Kung Fu Panda**: Tai Lung , Po , Tigress
-
-**Weak Hero Class**: Su-ho , Seok-dae
-
-**Vincenzo**: Han-seo , Han-seok , Vincenzo , Cha-young
-
-**Basics**: South korea , Dumplings , pirates , vampires , turtles , felines , ferrets
-
-**Groups**: ONE OR EIGHT , StrayKids , Ateez , Lngshot
-
-**YouTubers/Streamers**: AstralDior , Collins Key , Caseoh
-
-----------------------------
-
-<img width="736" height="736" alt="182b52213c3fe61830cc7a19ef8bc76c" src="https://github.com/user-attachments/assets/57f08403-83b9-49b3-9fd9-892f70d74294" />
+<img width="736" height="736" alt="21093d35b8b7fde04d11623b1e19b939" src="https://github.com/user-attachments/assets/20521dfa-1499-4a7a-ad5d-6d3b34338db5" />
